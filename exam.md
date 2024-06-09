@@ -1358,3 +1358,9 @@ https://dich.media/teoriya-sotsialnogo-sravneniya/
 https://studfile.net/preview/4217960/page:5/
 
 https://dzen.ru/a/Xx3GlhITDDXfec6I
+
+https://4brain.ru/blog/%D1%81%D0%BE%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F-%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B0/
+
+https://studfile.net/preview/1809964/page:10/
+
+https://skillbox.ru/media/marketing/chto-takoe-referentnaya-gruppa-i-kak-ona-vliyaet-na-vybor-pokupateley-i-klientov/
