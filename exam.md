@@ -1350,3 +1350,9 @@
 #### Зеттелькастен 
 #### Mind Mapping
 #### Wiki-стиль
+
+------------
+
+https://dich.media/teoriya-sotsialnogo-sravneniya/
+
+https://studfile.net/preview/4217960/page:5/
