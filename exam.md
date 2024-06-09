@@ -1356,3 +1356,5 @@
 https://dich.media/teoriya-sotsialnogo-sravneniya/
 
 https://studfile.net/preview/4217960/page:5/
+
+https://dzen.ru/a/Xx3GlhITDDXfec6I
